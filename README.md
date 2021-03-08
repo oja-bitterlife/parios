@@ -1,3 +1,5 @@
 # parios
 
-![作成中](thumb.png)
+https://user-56762a39bfc54793.artstation.com/projects/rAy5nE
+
+![パリオスちゃん](thumb.png)
